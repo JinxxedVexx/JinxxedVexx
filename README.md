@@ -39,7 +39,6 @@ I have a lot of things I'm interested in...**A LOT**, it's hard to list a bunch 
 - All the basic shit, don't be wack.
 - If you're a minor and I'm on the 18+ server, do not interact with me. You're intruding on a space intended for adults. If I'm on the other server, I don't mind chatting with you.
 - If you're hypercritical of morally grey or dark characters (let them have hobbies!)
-- You're a LVL 1 LGBTQ (this is kind of a joke, but if you can't wrap your head around complex queer identities I'd rather not have to explain them to you).
 - You're purposefully baiting, overly edgy or doing an unfunny bit.
 - If you're deep into terminally online fandom spaces.
 
