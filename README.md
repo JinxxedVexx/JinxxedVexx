@@ -16,8 +16,9 @@ If you're wanting to check out my art, look at my [Twitter](https://x.com/Jinxxe
 ### If you need to get my attention or are looking to chat, it's best that you ***whisper me***. 
 > I'm usually drawing while playing PonyTown, so it's possible I can miss you! Sorry if that happens u_u
 
-I usually hang around the bakery or spawn, sometimes I'll be by the DC/Marvel spots but if you don't see me there I'm probably wandering around!
-My friend Dayne is generally with me, she's pretty nonverbal (most of the time). I tend to play Ponytown in the background, while in call and doing other things, and just hang around to people-watch. I don't mind conversations or meeting people at all! I have a ton of interests and love chatting about them! 
+I usually hang around the bakery or spawn, but if you don't see me there I'm probably wandering around!
+
+My bestie [Dayne](https://x.com/DiscussingFilm/status/1898853848405418366) is generally with me, she's pretty nonverbal (most of the time). I tend to play Ponytown in the background, while in call and doing other things, and just hang around to people-watch. I don't mind conversations or meeting people at all! I have a ton of interests and love chatting about them! 
 
 If you're wearing a skin that coincides with mine, feel free to hang around me and vibe!
 
@@ -26,7 +27,7 @@ If you're wearing a skin that coincides with mine, feel free to hang around me a
 <sub> My supreme reigning hyperfixation is Katie McGrath...</sub>
 
 ![original (5)](https://github.com/user-attachments/assets/0a15b02a-7d0f-4a53-9d6f-719113ce02a5) 
-but I'm also currently really into Tangled: The Series and The Twilight Saga.
+Currently into: Rapunzel's Tangled Adventure, Cyberpunk 2077, OCs
 
 I have a lot of things I'm interested in...**A LOT**, it's hard to list a bunch on things like these so I usually just do whatever off the top of the dome. Chat me up and I'll more than likely be into at least one thing you're into.
 
