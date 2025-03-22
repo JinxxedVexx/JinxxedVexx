@@ -18,7 +18,7 @@ If you're wanting to check out my art, look at my [Twitter](https://x.com/Jinxxe
 
 I usually hang around the bakery or spawn, but if you don't see me there I'm probably wandering around!
 
-My bestie [Dayne](https://x.com/DiscussingFilm/status/1898853848405418366) is generally with me, she's pretty nonverbal (most of the time). I tend to play Ponytown in the background, while in call and doing other things, and just hang around to people-watch. I don't mind conversations or meeting people at all! I have a ton of interests and love chatting about them! 
+My bestie [Dayne](https://github.com/yesterdayne) is generally with me, she's pretty nonverbal (most of the time). I tend to play Ponytown in the background, while in call and doing other things, and just hang around to people-watch. I don't mind conversations or meeting people at all! I have a ton of interests and love chatting about them! 
 
 If you're wearing a skin that coincides with mine, feel free to hang around me and vibe!
 
