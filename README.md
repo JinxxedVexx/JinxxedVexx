@@ -1,7 +1,7 @@
 # Hey-o Spaghetti-o's!
 ![malignant-chair](https://github.com/user-attachments/assets/ff622300-cb55-4797-ae1e-fb3805d4519d)
 
-## JINXX | 26 | ANY PRONOUNS | AROACE/QUEER | MIXED ASIAN | AUDHD | SINGLE
+## JINXX | 27 | ANY PRONOUNS | AROACE/QUEER | MIXED ASIAN | AUDHD | SINGLE
 ----------
 
 ![pony-town-✨Jinxx 🖌Artist🖌  SONA ✨-trot-blinking-padded-toy95-4x](https://github.com/user-attachments/assets/414c2b9c-84d7-4c31-a435-4f89b3ade497) I'm Jin/Jinxx/Vexx! You're probably here from PonyTown!
