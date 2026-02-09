@@ -27,7 +27,7 @@ If you're wearing a skin that coincides with mine, feel free to hang around me a
 <sub> My supreme reigning hyperfixation is Katie McGrath...</sub>
 
 ![original (5)](https://github.com/user-attachments/assets/0a15b02a-7d0f-4a53-9d6f-719113ce02a5) 
-Currently into: Rapunzel's Tangled Adventure, Cyberpunk 2077, OCs
+Currently into: COSMIC PRINCESS KAGUYA, IRON LUNG, OCs
 
 I have a lot of things I'm interested in...**A LOT**, it's hard to list a bunch on things like these so I usually just do whatever off the top of the dome. Chat me up and I'll more than likely be into at least one thing you're into.
 
