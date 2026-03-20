@@ -1,7 +1,7 @@
 # Hey-o Spaghetti-o's!
 ![malignant-chair](https://github.com/user-attachments/assets/ff622300-cb55-4797-ae1e-fb3805d4519d)
 
-## JINXX | 27 | ANY PRONOUNS | AROACE/QUEER | MIXED ASIAN | AUDHD | SINGLE
+## JINXX | '98 | ANY PRONOUNS | AROACE/QUEER | MIXED ASIAN | AUDHD | SINGLE
 ----------
 
 ![pony-town-✨Jinxx 🖌Artist🖌  SONA ✨-trot-blinking-padded-toy95-4x](https://github.com/user-attachments/assets/414c2b9c-84d7-4c31-a435-4f89b3ade497) I'm Jin/Jinxx/Vexx! You're probably here from PonyTown!
@@ -18,7 +18,7 @@ If you're wanting to check out my art, look at my [Twitter](https://x.com/Jinxxe
 
 I usually hang around the bakery or spawn, but if you don't see me there I'm probably wandering around!
 
-My bestie [Dayne](https://github.com/yesterdayne) is generally with me, she's pretty nonverbal (most of the time). I tend to play Ponytown in the background, while in call and doing other things, and just hang around to people-watch. I don't mind conversations or meeting people at all! I have a ton of interests and love chatting about them! 
+I tend to play Ponytown in the background, while in call and doing other things, and just hang around to people-watch. I don't mind conversations or meeting people at all! I have a ton of interests and love chatting about them! 
 
 If you're wearing a skin that coincides with mine, feel free to hang around me and vibe!
 
@@ -28,7 +28,7 @@ If you're wearing a skin that coincides with mine, feel free to hang around me a
 
 ![original (5)](https://github.com/user-attachments/assets/0a15b02a-7d0f-4a53-9d6f-719113ce02a5) 
 
-Currently into: COSMIC PRINCESS KAGUYA, IRON LUNG, OCs
+Currently into: COSMIC PRINCESS KAGUYA, IRON LUNG, OCs, RESIDENT EVIL
 
 I have a lot of things I'm interested in...**A LOT**, it's hard to list a bunch on things like these so I usually just do whatever off the top of the dome. Chat me up and I'll more than likely be into at least one thing you're into.
 
